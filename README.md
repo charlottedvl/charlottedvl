@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm currently studying at ISEP university, an engeenering school in Paris.  
+I'm currently studying at Cranfield University (UK) as part as a double-degree with my French University, ISEP, an engeenering school in Paris.  
 
 Don't hesitate to contact me for any collaboration !
 
